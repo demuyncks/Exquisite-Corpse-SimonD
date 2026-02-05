@@ -11,6 +11,6 @@ Add, commit, and push
 Invite someone to contribute to story through branching and pull request
 
 # Story
-** Make it super cool **
+**Make it super cool**
 
-I woke up early this Sunday because of a very good smell coming from outside of my bedroom. It was not coffee, but I could not resist to get up. I had that deep unknown feeling in my body though. What did I actually do yesterday ?
+*I woke up early this Sunday because of a very good smell coming from outside of my bedroom. It was not coffee, but I could not resist to get up. I had that deep unknown feeling in my body though. Who the f was that guy yesterday ?*
