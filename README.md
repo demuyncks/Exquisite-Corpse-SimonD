@@ -14,6 +14,11 @@ Invite someone to contribute to story through branching and pull request
 **Make it super cool**
 
 *I woke up early this Sunday because of a very good smell coming from outside of my bedroom. It was not coffee, but I could not resist to get up. I had that deep unknown feeling in my body though. Who the f was that guy yesterday ? I peeked outside. There he was, holding a ridiculously large pancake. I rubbed my eyes, either I was dreaming or this guy knew excatly what I wanted to eat *
+
+"Hi", I said. He was smiling. "Can I have that?" I asked, pointing at the pancake. 
+"Sure", he replied. I walked and he raised his finger, "Can you answer a question first though?"
+
+
 *I woke up early this Sunday because of a very good smell coming from outside of my bedroom. It was not coffee, but I could not resist to get up. I had that deep unknown feeling in my body though. Who the f was that guy yesterday ?*
 
 *Friday arrived wrong.
