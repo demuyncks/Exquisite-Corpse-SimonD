@@ -26,4 +26,9 @@ Who was that yesterday?*
 
 *I peeked outside. There he was, holding a ridiculously large pancake. I rubbed my eyes, either I was dreaming or this guy knew excatly what I wanted to eat*
 
+*"Hi", I said. He was smiling. "Can I have that?" I asked, pointing at the pancake.
+"Sure", he replied. I walked and he raised his finger, "Can you answer a question first though?"*
+
+"Of course" I would do anything for even a small piece of this pancake..
+"what's your type?" he asked.
 
