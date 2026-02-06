@@ -25,3 +25,6 @@ Who was that yesterday?*
 
 *"Hi", I said. He was smiling. "Can I have that?" I asked, pointing at the pancake.
 "Sure", he replied. I walked and he raised his finger, "Can you answer a question first though?"*
+
+"Of course" I would do anything for even a small piece of this pancake..
+"what's your type?" he asked.
